@@ -1,1 +1,0 @@
-# wadefrank.github.io
